@@ -1,6 +1,6 @@
 #Cinderella Story
 
-A long, long time ago, in a small kingdom far, far away, there lived a girl named Ella. 
+A long, long time ago, in a small kingdom far, far away, there lived a beautiful girl named Ella. 
 
 Ella's widowed father (whose name was Maury - but that's not important) remarried a woman with two daughters of her own.
 
