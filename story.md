@@ -18,9 +18,10 @@ Cinderella's home life goes from bad to worse.
 
 Meanwhile, the King is trying to get his son married. Son isn't interested, really. King throws a party, for his son. The Prince says he's going to party like it's 1999!
 
+
 Cinderella can go to the party if she finishes her chores. Mice and birds make a dress for her (it's complicated).
 
-Her stepsisters wreck her dress. Cinderella cries. (Oh, and you wouldn't?)
+Her stepsisters wreck her dress. Cinderella cries. (Oh, and you wouldn't?) She runs to the garden (same one mom had tragic accident) and fell down in tears into the poppies. She cried herself to sleep.  When she awoke, she felt as though she may be flaoting above the flowers and to her amzaement  . . .
 
 Her Fairy Godmother shows up (And I'm all like, "where have you been the last few year?!") and (this part is too weird for detail) uses her magic wand to the turn - amongst other things - a pumpkin into a coach and mice into horses (early GMO experimentation FTW!). Oh, and she fixes the dress and makes glass slippers (top that, Lady Gaga).
 
